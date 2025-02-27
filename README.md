@@ -1,1 +1,0 @@
-# GC.constructions.github.io
